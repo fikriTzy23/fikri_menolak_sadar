@@ -1,0 +1,1 @@
+# fikri_menolak_sadar
